@@ -1,4 +1,4 @@
-# 
+# updated Windscribe VPN for PC | Windscribe VPN for Windows Extension | obfuscation + no-logs-policy offers the most advanced Windscribe VPN for PC | Windscribe VPN for Windows
 
 
 
